@@ -1,1 +1,1 @@
-# JohnnyDoe77.github.io
+# placeholder for gamermouse.tk
